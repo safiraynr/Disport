@@ -144,7 +144,7 @@
             <p>Dasar Hukum : Perda No.14/2009 Pusat Pemerintahan : Alamat : Jl. Jend. Gatot Subroto No. 44, Pahoman, Bandar Lampung Telepon : (0721)240766 Fax : (0721)240766 Email : Website :<a href=" http://www.bpbd.lampungprov.go.id">http://www.bpbd.lampungprov.go.id</a></p>
 
 
-            <h4> 10. Kepulauan Bangka Belitung </h4>
+            <h4> 10. Kepulauan Bangka Belitungg </h4>
             <p>Dasar Hukum : Perda No. 2 Th 2010 Pusat Pemerintahan : Alamat : Komp. Perkantoran dan Permukiman Terpadu Pemprov Kep. Babel Jl. Profesi (Eks Gedung Profesi) Kel. Air Itam, Pangkalpinang 33148 Telepon : (0717)438865 Fax : 0717 - 42611499 Email : bpbd.provbabel@gmail.com Website : <a href=" http://bpbdprovbabel.blogspot.com/">  http://bpbdprovbabel.blogspot.com/ </a></p>
 
 <br>
